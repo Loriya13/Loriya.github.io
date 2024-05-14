@@ -1,2 +1,1 @@
-# Loriya.github.io
-Lr3
+# Worladge.git.io
